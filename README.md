@@ -1,4 +1,4 @@
-#  <a href="https://bit.ly/3DNaS0X">Onwin ♦️ Güvenilir ve Cazip Bonuslar</a>
+#  <a href="https://bit.ly/3DNaS0X">Onwin ♦️ Tıkla Siteye Giriş Yap</a>
 #  <a href="https://bit.ly/3DNaS0X">🎁 Şimdi Katıl ve Kazanmaya Başla!</a>
 
 <meta charset="UTF-8">
